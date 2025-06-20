@@ -1,2 +1,2 @@
 # controller-works
-Get outsourced accounting, trial and balance, and business financial planning services by a small business accountant near me at <a href="https://controllerworks.com/">Controller Works</a>.
+Controller Works is a trusted provider of industrial automation solutions, specializing in the design and manufacturing of high-quality control systems. From custom-built control panels to advanced automation integration, <a href="https://controllerworks.com/">Controller Works</a> delivers reliable, efficient, and tailored solutions that meet the specific needs of various industries. With a focus on precision, innovation, and customer support, Controller Works helps businesses optimize performance, reduce downtime, and maintain full control over their operations.
